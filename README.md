@@ -8,4 +8,3 @@ How to deploy (GitHub Pages):
 
 WhatsApp contact: https://wa.me/6287794052041
 Instagram: https://www.instagram.com/c4shopb
-Google Maps: https://maps.app.goo.gl/u6srJcFtgspSzoyq5
